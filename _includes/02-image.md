@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+C:\Users\135301ark1\OneDrive - Uno-X\Pictures\01. Bakgrunnsbilder\IMG_0165.jpeg
